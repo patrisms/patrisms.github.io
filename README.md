@@ -1,1 +1,0 @@
-# patrisms.github.io
